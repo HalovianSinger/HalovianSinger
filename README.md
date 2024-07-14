@@ -30,6 +30,6 @@
 ![](https://64.media.tumblr.com/2c64ba77985a84c0492517afd198a05f/ad68191878b5e9f9-85/s100x200/26c861bb492b41dc764b52aeb6be4435763da3aa.gifv)ㅤㅤㅤ![](https://64.media.tumblr.com/b81695fc34889396ca54eb94ba2e7642/ad68191878b5e9f9-92/s100x200/8c1681c96de93eb6de3bf3412353c0ac0bffeb78.gifv)ㅤㅤㅤ![](https://64.media.tumblr.com/08d6e53f4bfc291ce3efadf74b18e9ea/ad68191878b5e9f9-b4/s100x200/5841dea839484763b456795fc74dc02bfb8f0288.gifv)
 
 ---
-ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ᵈᵒᵛᵉⁱˢʰ](https://www.tumblr.com/doveish) ᵈⁱᵛⁱᵈᵉʳ ᵇʸ [ᵐᵐᵃᶜᵘˡᵃᵗᵘˢ](https://www.tumblr.com/i-mmaculatus)
+ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ᵈᵒᵛᵉⁱˢʰ](https://www.tumblr.com/doveish) ᵈⁱᵛⁱᵈᵉʳ ᵇʸ [ᵐᵐᵃᶜᵘˡᵃᵗᵘˢ](https://www.tumblr.com/i-mmaculatus) ˢʰⁱⁿʸ ᵇᵘᵗᵗᵒⁿˢ ᵇʸ [ⁿᵃʳᶜᵇᶠ](https://www.tumblr.com/narcb)
 
 ᴹᵃᵈᵉ ᴮʸ [ʳᵒˢᵉ](https://github.com/FurinaTheFountain)
